@@ -1,0 +1,2 @@
+# 2-GIRLS-
+2 girls were walking in their little rough. Since this town started to scare them, they wanted to escape from here and fulfill their dreams. As she dreamed, her fears passed. The town turned into an ocean. The ocean turned into a forest. The forest has become the world. the world became the universe. and they kept walking with their two little dreams. because his dreams were bigger than the universe.
